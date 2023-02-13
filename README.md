@@ -1,15 +1,15 @@
 # stage
-FOLLOW ME
+Follow Me
 
-Now get down on your knees
-There's no one to speak
-Except me me me
+Now get down on your knees  
+There's no one to speak  
+Except me me me  
 
-Follow me
+Follow me  
 
-You better close your eyes
-Take this moment with ease
-I'll smash everyone
+You better close your eyes  
+Take this moment with ease  
+I'll smash everyone  
 
 Who tries to sneak in or tease
 
