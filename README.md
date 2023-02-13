@@ -1,7 +1,5 @@
 # stage
-Config files for my GitHub profile.
-
-Follow me
+FOLLOW ME
 
 Now get down on your knees
 There's no one to speak
