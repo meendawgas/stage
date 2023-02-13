@@ -1,6 +1,4 @@
 # stage
-Follow M  
-
 Follow me
 
 Now get down on your knees  
